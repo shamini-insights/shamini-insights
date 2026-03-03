@@ -1,5 +1,5 @@
 ## Hi there 👋
-# Hi there, I'm shamini-insights 👋
+# I'm shamini-insights 👋
 
 **Lead - Technical Support | Data Analyst | Problem Solver**
 
