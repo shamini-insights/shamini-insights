@@ -1,5 +1,5 @@
 ## Hi there 👋
-# I'm shamini-insights 👋
+# I'm Shamini Prakash 👋
 
 **Lead - Technical Support | Data Analyst | Problem Solver**
 
